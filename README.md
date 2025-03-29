@@ -1,5 +1,2 @@
 # test-shadcn
-No decription yet
-
-# Note
-User aya is still a beginner at coding. No judgement please. (ON HOLDDD)
+i dont even remember where is the folder inmy files bruh
